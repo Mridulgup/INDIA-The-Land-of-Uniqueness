@@ -1,0 +1,2 @@
+# INDIA-The-Land-of-Uniqueness
+Indian Culture  is the most different and unique of all the countries in the world. This is because the Indian culture is the heritage of social norms, ethical values, traditional customs, belief systems, political systems, artifacts and technologies that originated in or are associated with the Indian subcontinent. The term also applies beyond India to countries and cultures whose histories are strongly connected to India by immigration, colonization, or influence, particularly in South Asia and Southeast Asia.
